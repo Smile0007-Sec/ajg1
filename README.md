@@ -1,2 +1,0 @@
-# ajg1
-bapak
